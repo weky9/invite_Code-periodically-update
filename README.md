@@ -1,7 +1,7 @@
 # invite_Code-periodically-update
 invite_Code-periodically update
 
-2019-6-2
+2019-6-2，10个
 ___________________________________
 yQ57fHwywHcT91syJnITbKcMS07NGZZy
 
@@ -23,5 +23,5 @@ orZyeKzUQI6ahuHKzIHt4i9DKWnGzcBN
 
 C2jRTrMnL21bd0ec6bbRa6HBelR0hQPs
 
-——————————
+————————————————————————————————————
 8折优惠码：DISC-uYi7xDvB （2019-7-24之前有效）
